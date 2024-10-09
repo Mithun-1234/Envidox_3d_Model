@@ -1,1 +1,0 @@
-# Envidox_3d_Model
